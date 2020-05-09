@@ -19,3 +19,7 @@ TedCarol (Davee) created this line
 
 Taylor created this line
 Taylor also created this line 
+
+consider yourself on an island
+now imagine there's sand on it. Done
+
