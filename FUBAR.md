@@ -11,3 +11,6 @@ Alice and Ted's First feature revision
 this is a funny joke 
 this actually isn't a funny joke
 
+imagine yourself as two people, now do the work of two people
+next, push that, and snap that, out on the floor
+
