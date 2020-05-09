@@ -14,3 +14,6 @@ this actually isn't a funny joke
 imagine yourself as two people, now do the work of two people
 next, push that, and snap that, out on the floor
 
+TedCarol (Davee) created this line
+TedCarol (Davee) created this line
+
